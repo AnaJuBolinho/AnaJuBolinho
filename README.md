@@ -1,10 +1,9 @@
 ## Seja bem-vindo ao meu perfil ✨
 
-Meu nome é Ana Julia 
-
+- Meu nome é Ana Julia 
 - Tenho 16 anos 🤞
-- Amo ler livros 📚
-- Adoro filmes e séries! 🐱‍💻
+- Amo ler livros 
+- Adoro filmes e séries 🐱‍💻
 - Participo de trabalhos voluntários
 -  📥 Para contato email: _anajubertaglia@gmail.com_
 
