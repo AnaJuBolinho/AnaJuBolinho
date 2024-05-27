@@ -7,4 +7,4 @@
 - Participo de trabalhos voluntários
 -  📥 Para contato email: _anajubertaglia@gmail.com_
 
-![](![image](https://github.com/AnaJuBolinho/AnaJuBolinho/assets/170975111/c0ee0409-9bc1-46f9-808c-54825ea2b9b1)
+![](https://github.com/AnaJuBolinho/AnaJuBolinho/assets/170975111/c0ee0409-9bc1-46f9-808c-54825ea2b9b1)
