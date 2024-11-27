@@ -1,7 +1,7 @@
 ## Seja bem-vindo ao meu perfil ✨
 
 - Meu nome é Ana Julia 
-- Tenho 16 anos 🤞
+- Tenho 17 anos 🤞
 - Amo ler livros 
 - Adoro filmes e séries 🐱‍💻
 - Participo de trabalhos voluntários
